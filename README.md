@@ -1,3 +1,5 @@
+![Revenge of the Sith Poster](https://i.ebayimg.com/images/g/BiEAAOSwWZlf8liw/s-l1200.jpg)
+
 # Revenge of the Sith
 
 *Revenge of the Sith* is the third installment in the *Star Wars* prequel trilogy. It was released in **2005** and directed by **George Lucas**. The film portrays the tragic fall of Anakin Skywalker and the rise of Darth Vader, leading to the collapse of the Jedi Order and the rise of the Galactic Empire.
